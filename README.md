@@ -4,13 +4,13 @@
 <sub>ᴷᵉᵉᵖ ᵐᵉ ⁱⁿ ʸᵒᵘʳ ᵐⁱʳʳⁱᵒʳ, ᵏᵉᵉᵖ ᵒⁿ ʰᵒˡᵈ, ᶜᵃⁿ'ᵗ ʸᵒᵘ </sub>
 
 <p align="center" dir="auto">
-<img src="https://64.media.tumblr.com/b90b0b0c0ec214915bdc814342f91b73/4e8957c1a724bcfa-7a/s540x810/95547610022fd538978c0e50c1a9dc34ffe80fa3.pnj" style="max-width: 100%; "></p>
+<img src="https://64.media.tumblr.com/9be23d88f631d17582d358e9ea078d05/88ad6122ca95e94c-e6/s500x750/efbcd5a817b48daa719c94ab99a5c52d37c243cc.pnj" style="max-width: 100%; "></p>
 
 <p align="center" dir="auto">
 <sub>Rιƈƙყ Kυɾƚ σɾ Rιƈԋιҽ, <b><ins>Ⲃⲓⲣⲟ𝓵ⲁꞅ.</ins></b>, Rιɳɠσ Sƚαɾɾ ιɾʅ </sub>
 <p align="center" dir="auto">
-<sub>ᴿⁱⁿᵍᵒ ʷᵃˢⁿ’ᵗ ᵗʰᵉ ᵇᵉˢᵗ ᵈʳᵘᵐᵐᵉʳ ⁱⁿ ᵗʰᵉ ʷᵒʳˡᵈ… ᴸᵉᵗ’ˢ ᶠᵃᶜᵉ ⁱᵗ, ʰᵉ ʷᵃˢⁿ’ᵗ ᵉᵛᵉⁿ ᵗʰᵉ ᵇᵉˢᵗ ᵈʳᵘᵐᵐᵉʳ ⁱⁿ ᵀʰᵉ ᴮᵉᵃᵗˡᵉˢ
+<sub>ₐₗ𝔀ₐᵧₛ ᵣₑₐ𝓬ₕᵢₙ𝑔
 .</sub>
 
 <p align="center" dir="auto"> 
-<img src="https://64.media.tumblr.com/7baee43a0ca59e4015b5335ab007f4f0/ae667858e25f6ff5-ee/s100x200/ae2ca9ce871c5e9cd5b3ab4d9b8ba3d4456e59a1.pnj" style="max-width: 100%; "></p> 
+<img src="https://64.media.tumblr.com/8115fa6d48586fba518eb1f2d39305b4/4e59c7c5e5f627bd-bb/s250x400/4ae8ebd8f0a9948f8e511f58df23333b55bfd5e6.gifv" style="max-width: 100%; "></p> 
