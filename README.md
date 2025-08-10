@@ -4,7 +4,7 @@
 <sub>ᴷᵉᵉᵖ ᵐᵉ ⁱⁿ ʸᵒᵘʳ ᵐⁱʳʳⁱᵒʳ, ᵏᵉᵉᵖ ᵒⁿ ʰᵒˡᵈ, ᶜᵃⁿ'ᵗ ʸᵒᵘ </sub>
 
 <p align="center" dir="auto">
-<img src="https://64.media.tumblr.com/9be23d88f631d17582d358e9ea078d05/88ad6122ca95e94c-e6/s500x750/efbcd5a817b48daa719c94ab99a5c52d37c243cc.pnj" style="max-width: 100%; "></p>
+<img src="https://64.media.tumblr.com/ced51a4a7f0c44500f6b1188eb26bb3b/7feaa1d26610edd5-95/s500x750/77868f846de43e364e5fd24b5fe50317ce1b4ff3.pnj" style="max-width: 100%; "></p>
 
 <p align="center" dir="auto">
 <sub>Rιƈƙყ Kυɾƚ σɾ Rιƈԋιҽ, <b><ins>Ⲃⲓⲣⲟ𝓵ⲁꞅ.</ins></b>, Rιɳɠσ Sƚαɾɾ ιɾʅ </sub>
