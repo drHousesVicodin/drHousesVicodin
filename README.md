@@ -4,7 +4,7 @@
 <sub>ᴷᵉᵉᵖ ᵐᵉ ⁱⁿ ʸᵒᵘʳ ᵐⁱʳʳⁱᵒʳ, ᵏᵉᵉᵖ ᵒⁿ ʰᵒˡᵈ, ᶜᵃⁿ'ᵗ ʸᵒᵘ </sub>
 
 <p align="center" dir="auto">
-<img src="https://64.media.tumblr.com/ced51a4a7f0c44500f6b1188eb26bb3b/7feaa1d26610edd5-95/s500x750/77868f846de43e364e5fd24b5fe50317ce1b4ff3.pnj" style="max-width: 100%; "></p>
+<img src="https://64.media.tumblr.com/43ff19edaa97e85fbe00a7394af82ad5/6dacf8f6759f9d97-92/s540x810/9bd757be9d49df11a3cc4e3a3b4adac31ba130e5.pnj" style="max-width: 100%; "></p>
 
 <p align="center" dir="auto">
 <sub>Rιƈƙყ Kυɾƚ σɾ Rιƈԋιҽ, <b><ins>Ⲃⲓⲣⲟ𝓵ⲁꞅ.</ins></b>, Rιɳɠσ Sƚαɾɾ ιɾʅ </sub>
@@ -13,4 +13,4 @@
 .</sub>
 
 <p align="center" dir="auto"> 
-<img src="https://64.media.tumblr.com/8115fa6d48586fba518eb1f2d39305b4/4e59c7c5e5f627bd-bb/s250x400/4ae8ebd8f0a9948f8e511f58df23333b55bfd5e6.gifv" style="max-width: 100%; "></p> 
+<img src="https://64.media.tumblr.com/c11ba0d53b0d8137813493d9ffe667df/332662bcadb2f47e-69/s75x75_c1/67cfcfa0e9d97f1eedfd31eef35ed1557f855d5d.gifv" style="max-width: 100%; "></p> 
