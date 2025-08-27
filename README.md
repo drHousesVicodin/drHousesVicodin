@@ -2,10 +2,10 @@
 
 
 <p align="center" dir="auto">
-<img src="https://64.media.tumblr.com/ad5c17436fa735c3f1e816601ee9bf8a/6d6a639539246533-6e/s2048x3072/7d9c2d7be4cd34fdede514eb8bb57ce7e8756fcb.pnj" style="max-width: 100%; "></p>
+<img src="https://64.media.tumblr.com/5507235355264d7541f27d7e4d68f928/fd7e5b74519da8af-82/s640x960/f1a66a0a37b540c351ebaf72180e9f3544bc4b03.pnj" style="max-width: 100%; "></p>
 
 <p align="center" dir="auto">
-<img src="https://64.media.tumblr.com/985590fe2933eb20a3273b712c4cdf8c/cd861ead5047713b-b0/s540x810/b1275324120c1b91cd4aaceef6adabeb4f162d63.pnj"> 
+<img src="https://64.media.tumblr.com/517b7d77bc01ab5197a521bf98221ce6/5359787c75df6a97-6c/s540x810/f1d4b259c53cc9c3a8285ddb539c9964238714da.pnj"> 
 
 <p align="center" dir="auto">
 <sub>Rιƈƙყ Kυɾƚ σɾ Rιƈԋιҽ, <b><ins>Ⲃⲓⲣⲟ𝓵ⲁꞅ.</ins></b>, Rιɳɠσ Sƚαɾɾ ιɾʅ </sub>
@@ -14,6 +14,7 @@
 .</sub>
 
 <p align="center" dir="auto"> 
-<img src="https://64.media.tumblr.com/982bf3e864082081c6dbe44a4f5b388d/7cc0951df855f33f-fb/s75x75_c1/45e62d5d06df0e09e8eebb34fa0d6cf684e4242e.gifv" style="max-width: 100%; "></p> 
+<img src="https://64.media.tumblr.com/5361fe0bea621d43bb1f5e9f442c04ec/bea578ccfee15413-44/s100x200/90cb3c0c06da285ca051f902aeb4e96f77bc1d35.gifv" style="max-width: 100%; "></p> 
 
-<img src="https://64.media.tumblr.com/ad5c17436fa735c3f1e816601ee9bf8a/6d6a639539246533-6e/s2048x3072/7d9c2d7be4cd34fdede514eb8bb57ce7e8756fcb.pnj">
+<p align="center" dir="auto">
+<img src="https://64.media.tumblr.com/5507235355264d7541f27d7e4d68f928/fd7e5b74519da8af-82/s640x960/f1a66a0a37b540c351ebaf72180e9f3544bc4b03.pnj" style="max-width: 100%; "></p>
