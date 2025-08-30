@@ -5,7 +5,7 @@
 <img src="https://64.media.tumblr.com/7aae81d162019e4b65c3c33eada02eb8/3b6c199cec96c857-be/s640x960/4bc1843e44662c7f8c7444f4a508eb0685dafda8.pnj" style="max-width: 100%; "></p>
 
 <p align="center" dir="auto">
-<img src="https://64.media.tumblr.com/ae5b5b35ee89a534b203aa242aa96c6d/d5583d9f7d016324-a1/s500x750/1a9ab98a1d626f4f6dcd2e95798deda92046cb48.pnj"> 
+<img src="https://64.media.tumblr.com/e0a7d9852370936a4879eedae9b359f9/e664d997299980a9-9d/s500x750/fbe107956666c1386033d170c9c7e92e3d472670.pnj"> 
 
 <p align="center" dir="auto">
 <sub>Rιƈƙყ Kυɾƚ σɾ Rιƈԋιҽ, <b><ins>Ⲃⲓⲣⲟ𝓵ⲁꞅ.</ins></b>, Rιɳɠσ Sƚαɾɾ ιɾʅ </sub>
