@@ -6,5 +6,5 @@
 <p align="center" dir="auto">
 <img src="https://i.pinimg.com/originals/6b/59/ec/6b59ec369392a3164ae5900e5414a3a5.gif"> 
 
-wip
+i got lazy
 
