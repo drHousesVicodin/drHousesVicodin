@@ -8,4 +8,4 @@
 
 i got lazy
 
-[fm](https://stats.fm/31emw27hdnz23bbvfx4humhc7cjq)      [rentry](https://rentry.co/rickypawss)
+[fm](https://stats.fm/31emw27hdnz23bbvfx4humhc7cjq)      [rentry](https://rentry.co/rickypawss)    [ata](https://attajohn.atabook.org/)
