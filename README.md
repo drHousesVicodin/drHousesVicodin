@@ -4,10 +4,9 @@
 
 
 <p align="center" dir="auto">
-<img src="https://i.pinimg.com/736x/f7/af/bb/f7afbbdc891972b018d38ae7751fc2ff.jpg"> 
+<img src="https://64.media.tumblr.com/6bc5d34d12528002d4ae3d4d1e4a11eb/d47b76cd45085a89-7a/s540x810/95a8537bc7bef9c50b40aa9b4aa585828ae01970.pnj"> 
 
-<p align="center" dir="auto">
-<img src="https://64.media.tumblr.com/447afd080313eca38b59290c0b673da3/ef99094a7aa79fdf-c7/s100x200/e465f3bc6cc3194064c7c41ca0106a97e2d17a01.pnj"> 
+
 
 
 wip
