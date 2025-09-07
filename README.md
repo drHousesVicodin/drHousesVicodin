@@ -2,6 +2,7 @@
 
 
 
+wip
 
 <p align="center" dir="auto">
 <img src="https://64.media.tumblr.com/6bc5d34d12528002d4ae3d4d1e4a11eb/d47b76cd45085a89-7a/s540x810/95a8537bc7bef9c50b40aa9b4aa585828ae01970.pnj"> 
@@ -13,8 +14,6 @@
 
 <br>
 
-
-  wip
  
  <a href="https://rentry.co/rickypawss">rentry</a>  <a href="https://attajohn.atabook.org/">ata</a>
 <br><a href="https://stats.fm/31emw27hdnz23bbvfx4humhc7cjq">lastfm</a><br> <br><a href="https://walloftext.co/tokiwartooth">wall text</a><br>
