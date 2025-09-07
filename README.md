@@ -14,7 +14,7 @@
 <br>
   
  
- <a href="https://rentry.co/rickypawss">rentry</a>  <a href="https://attajohn.atabook.org//">ata</a>
+ <a href="https://rentry.co/rickypawss">rentry</a>  <a href="https://attajohn.atabook.org/">ata</a>
 <br><a href="https://stats.fm/31emw27hdnz23bbvfx4humhc7cjq">lastfm</a><br>
 <br>
 <br>
