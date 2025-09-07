@@ -6,6 +6,10 @@
 <p align="center" dir="auto">
 <img src="https://i.pinimg.com/736x/f7/af/bb/f7afbbdc891972b018d38ae7751fc2ff.jpg"> 
 
+<p align="center" dir="auto">
+<img src="https://64.media.tumblr.com/447afd080313eca38b59290c0b673da3/ef99094a7aa79fdf-c7/s100x200/e465f3bc6cc3194064c7c41ca0106a97e2d17a01.pnj"> 
+
+
 wip
 
 [fm](https://stats.fm/31emw27hdnz23bbvfx4humhc7cjq)      [rentry](https://rentry.co/rickypawss)    [ata](https://attajohn.atabook.org/)     attajohn on dis
