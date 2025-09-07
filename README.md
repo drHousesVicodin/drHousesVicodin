@@ -6,6 +6,6 @@
 <p align="center" dir="auto">
 <img src="https://i.pinimg.com/originals/6b/59/ec/6b59ec369392a3164ae5900e5414a3a5.gif"> 
 
-i got lazy
+wip
 
 [fm](https://stats.fm/31emw27hdnz23bbvfx4humhc7cjq)      [rentry](https://rentry.co/rickypawss)    [ata](https://attajohn.atabook.org/)
