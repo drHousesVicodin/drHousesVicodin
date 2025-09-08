@@ -2,7 +2,7 @@
 
 
 
-wip
+
 
 <p align="center" dir="auto">
 <img src="https://64.media.tumblr.com/e02fd8d2287891f82eff8f80ec90495e/3783bc7907a3bb28-71/s540x810/31bf30be2b37081ed81cd977e62a183434aefbeb.pnj"> 
@@ -14,11 +14,6 @@ wip
 
 <br>
 
- 
- <a href="https://rentry.co/rickypawss">rentry</a>  <a href="https://attajohn.atabook.org/">ata</a>
-<br><a href="https://stats.fm/31emw27hdnz23bbvfx4humhc7cjq">lastfm</a><br> <br><a href="https://walloftext.co/tokiwartooth">wall text</a><br>
-<br>
-<br>
 
-
+[rentry](https://rentry.co/rickypawss)ㅤㅤ[ata](https://attajohn.atabook.org/)ㅤㅤ[fm](https://stats.fm/31emw27hdnz23bbvfx4humhc7cjq) ㅤ[wall text](https://walloftext.co/tokiwartooth)
 
