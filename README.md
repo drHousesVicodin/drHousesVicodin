@@ -15,5 +15,5 @@ wip
 <br>
 
 
-[rentry](https://rentry.co/rickypawss)ㅤㅤ[ata](https://attajohn.atabook.org/)ㅤㅤ[fm](https://stats.fm/31emw27hdnz23bbvfx4humhc7cjq) ㅤ[wall text](https://walloftext.co/tokiwartooth)
+[rentry](https://rentry.co/rickypawss)ㅤㅤ[ata](https://attajohn.atabook.org/)ㅤㅤ[fm](https://stats.fm/31emw27hdnz23bbvfx4humhc7cjq) 
 
