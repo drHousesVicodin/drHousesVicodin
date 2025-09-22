@@ -8,7 +8,7 @@
 
 
 <p align="center" dir="auto">
-<img src="https://64.media.tumblr.com/5c5c5b982d9834860a87623ab7d8a384/88c246864e84de3f-4a/s500x750/b6a0869daeaa7b2ab942b1b7ee8b8879ea56c015.pnj" style="max-width: 100%; "></p>
+<img src="https://64.media.tumblr.com/890e8cf9a53f4347c499ad336d3c379e/53fb229d700d5151-df/s540x810/8c4d9981c528608461833733496c03561f52d924.pnj" style="max-width: 100%; "></p>
 
 <p align="center" dir="auto">
 <sub> ricky or toki <b><ins>3teen </ins></b>. <b><ins>BPD.</ins></b> sign atabook </sub>
