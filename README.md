@@ -20,3 +20,13 @@
 <p align="center" dir="auto">
 ${\textsf{\color{#ffffff} "now    i   want  someone bady" }}$ 
 
+<details><summary style="font-size: 13px;" class="mb8"><u>fawn sucks bums!!</u> </summary>
+
+<p>
+
+<img src="https://64.media.tumblr.com/285addec10c40d82aa293117eae1d45a/1d912e680e796d39-ae/s100x200/9e592696e448295a1b0962b45c056870a238d6f0.pnj"/>
+
+</p>
+</details>
+
+
