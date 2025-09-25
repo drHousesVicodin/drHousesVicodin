@@ -2,7 +2,7 @@
 
 
 <p align="center" dir="auto">
-<sub> <a href="https://rentry.co/rickypawss">rentry</a> : <a href="https://attajohn.atabook.org/">ata</a> : <a href="https://rentry.co/coolestpeopleever">friends</a>
+<sub> <a href="https://rentry.co/rickypawss">rentry</a> : <a href="https://attajohn.atabook.org/">ata</a> : <a href="https://rentry.co/-ponytownrules">rules</a>
 <br><a href="https://stats.fm/31emw27hdnz23bbvfx4humhc7cjq">fm</a><br>
 </sub>
 
