@@ -7,7 +7,7 @@
 </sub>
 
 <p align="center">
- ${\textsf{\color{#858585} people    think   we're  gay house }}$ !!
+ ${\textsf{\color{#858585} people,     think,    we're,   gay,  house,  }}$ !!
   </p>  
   </p>  
 <p align="center">
