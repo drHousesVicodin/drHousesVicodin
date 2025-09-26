@@ -6,27 +6,10 @@
 <br><a href="https://stats.fm/31emw27hdnz23bbvfx4humhc7cjq">fm</a><br>
 </sub>
 
+
 <p align="center">
- ${\textsf{\color{#858585} people,     think,    we're,   gay,  house,  }}$ !!
-  </p>  
-  </p>  
-<p align="center">
-  <img src="https://64.media.tumblr.com/afc7c05a6fcc1c5ad613eceb92a17e55/0ccce40449b7d460-7c/s540x810/5ba1f678f2824f9722d491a5a78bc9cfae5f1189.pnj" width="450">
+  <img src="https://64.media.tumblr.com/f8ee1be72d836f752f974a918f478492/c34c81e3c4a0eff4-10/s540x810/0736855bf446298cd0bb08516c5cc450c6d49d66.pnj" width="450">
 </p>  
 
-<p align="center" dir="auto">
-<sub> ricky or toki <b><ins>3teen </ins></b>. <b><ins>BPD.</ins></b> sign atabook </sub>
- 
-<p align="center" dir="auto">
-${\textsf{\color{#ffffff} "now    i   want  someone bady" }}$ 
-
-<details><summary style="font-size: 13px;" class="mb8"><u>fawn sucks bums!!</u> </summary>
-
-<p>
-
-<img src="https://64.media.tumblr.com/285addec10c40d82aa293117eae1d45a/1d912e680e796d39-ae/s100x200/9e592696e448295a1b0962b45c056870a238d6f0.pnj"/>
-
-</p>
-</details>
 
 
