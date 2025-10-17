@@ -1,7 +1,7 @@
 
 <p align="center" dir="auto">
 <sub> <a href="https://rentry.co/rickypawss">rentry</a>  <a href="https://attajohn.atabook.org/">ata</a>  <a href="https://rentry.co/hidurlips">urls</a>
-<br><a href="https://stats.fm/31emw27hdnz23bbvfx4humhc7cjq">fm</a><br>
+<br><a href="https://phillesterr.straw.page/">straw</a><br>
 </sub>
 
 
@@ -11,9 +11,9 @@
 
 
 <p align="center">ricky ㅤㅤ𝙜reg ㅤㅤ1͟3͟yo ㅤㅤ+ㅤㅤ<b><ins>bipolar.</ins></b></p>
-<p align="center">house md ㅤㅤ, ㅤㅤbeatles ㅤㅤ,ㅤㅤwednesday ㅤㅤ, ㅤㅤscream ㅤㅤtwin peaks ㅤㅤpnd ㅤㅤfan</p>
+<p align="center">${\textsf{\color{#737573} house md }}$ㅤㅤ, ㅤㅤbeatles ㅤㅤ,ㅤㅤwednesday ㅤㅤ, ㅤㅤscream ㅤㅤtwin peaks ㅤㅤpnd ㅤㅤfan</p>
 
-
+ 
 
 
 
