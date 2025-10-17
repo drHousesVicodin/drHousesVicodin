@@ -9,8 +9,9 @@
   <img src="https://i.pinimg.com/originals/d7/6c/b9/d76cb9bfa290fb06641f76098b25a899.gif" width="450">
 </p>  
 
-<p align="center" dir="auto">
-<sub> ricky ꪮr greg <b><ins>3teen </ins></b>. <b><ins>bipolar.</ins></b> #1 𝙝𝙪𝙜𝙝 laurie fan </sub>
+
+<p align="center">ricky ㅤㅤ𝙜reg ㅤㅤ1͟3͟yo ㅤㅤ+ㅤㅤ<b><ins>bipolar.</ins></b></p>
+<p align="center">house md ㅤㅤ, ㅤㅤbeatles ㅤㅤ,ㅤㅤwednesday ㅤㅤ, ㅤㅤscream ㅤㅤtwin peaks ㅤㅤpnd ㅤㅤfan</p>
 
 
 
