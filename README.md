@@ -1,6 +1,6 @@
 
 <p align="center" dir="auto">
-<sub> <a href="https://rentry.co/rickypawss">rentry</a>  <a href="https://attajohn.atabook.org/">ata</a>  <a href="https://rentry.co/hidurlips">urls</a>
+<sub> <a href="https://rentry.co/rickypawss">rentry</a>    <a href="https://rentry.co/hidurlips">urls</a>
 <br><a href="https://sledgehammerr.straw.page/">straw</a><br>
 </sub>
 
