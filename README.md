@@ -10,7 +10,7 @@
 </p>  
 
 
-<p align="center">ricky ㅤㅤ𝙜reg ㅤㅤ1͟3͟yo ㅤㅤ+ㅤㅤ<b><ins>bipolar.</ins></b></p>
+<p align="center">ricky ㅤㅤ𝐫obot ㅤㅤ1͟3͟yo ㅤㅤ+ㅤㅤ<b><ins>bipolar.</ins></b></p>
 <p align="center">${\textsf{\color{#737573} house md }}$ㅤㅤ, ㅤㅤbeatles ㅤㅤ,ㅤㅤwednesday ㅤㅤ, ㅤㅤscream ㅤㅤtwin peaks ㅤㅤpnd ㅤㅤfan</p>
 
  
