@@ -1,7 +1,7 @@
 
 <p align="center" dir="auto">
  <a href="https://rentry.co/rickypawss">rentry</a>  <a href="https://attajohn.atabook.org/">ata</a>  <a href="https://rentry.co/hidurlips">urls</a>
-<br><a href="https://mrrobott.straw.page/">straw</a><br>
+<br><a href="https://straw.page/draw?bio=mrrobottic">straw</a><br>
 
 
 
