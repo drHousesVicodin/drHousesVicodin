@@ -1,15 +1,15 @@
 
 
 <p align="center" dir="auto">
- <a href="https://rentry.co/rickypawss">ʳᵉⁿᵗʳʸ</a>  <a href="https://attajohn.atabook.org/">ᵃᵗᵃ</a>  <br><a href="https://deacury.straw.page/">ˢᵗʳᵃʷ</a><br>
+ <a href="https://rentry.co/rickypawss">ʳᵉⁿᵗʳʸ</a>  <a href="https://attajohn.atabook.org/">ᵃᵗᵃ</a>  <br><a href="https://jorkk.straw.page/">ˢᵗʳᵃʷ</a><br>
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=696969&width=435&lines=because+I+begin+too+miss+you)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=000000&width=435&lines=I'm+going+to+pack+up+all+the+pain)](https://git.io/typing-svg)
 <p align="center">
-  <img src="https://64.media.tumblr.com/b6d56488ab4431360733c2272abaa953/321f34835125a152-ae/s540x810/a9f916e2def617fdf1cc2a405cfc45611489431d.pnj" width="450">
+  <img src="https://i.pinimg.com/originals/bd/3a/46/bd3a469328091d1a3b85a4522c2803ff.gif" width="450">
 </p>   <p align="center">
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/d846b800cbfa1f05fb69c84c33e06b50/19f336aef58cc9d8-81/s100x200/76d498b00ec9f105fac241c3e63beab0e157f332.gifv" width="100">
+  <img src="https://64.media.tumblr.com/68f08fbc39bd2dd309e9270b9940ed8d/db047a55e5d961c3-21/s250x400/c88c0600974ecb371fb09fb048d35ddb7ba4ba9c.gifv" width="100">
  
 
 
